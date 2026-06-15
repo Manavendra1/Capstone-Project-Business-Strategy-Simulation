@@ -1,0 +1,2 @@
+# Capstone-Project-Business-Strategy-Simulation
+The strategic execution and financial performance of Team Navy during a comprehensive global business strategy simulation. Operating across the USA, Europe, and Asia, our company focused on R&amp;D, production, and marketing. Our core mission was to continuously innovate and adapt to rapid technological advancements while expanding our market presence.
